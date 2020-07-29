@@ -1,0 +1,1 @@
+vem sendo complicado... muitas vezes faltam detalhes e, por ser uma área completamente nova, parece que os tutores falam aos seus iguais e não a pessoas iniciantes. talvez seja a falta de prática.
